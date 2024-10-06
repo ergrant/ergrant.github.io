@@ -1,2 +1,2 @@
-# ergrant.github.io
-adding to the noise! maybe.
+# Here's the void
+and I'm shouting in to it. welcome.
